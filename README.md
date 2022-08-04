@@ -1,1 +1,1 @@
-![73KNHYDQZZHH7HRUSWNODEAKO4-removebg-preview (1)](https://user-images.githubusercontent.com/89779009/182962539-965697c8-376f-4288-8058-ca3d0980090e.png)
+![web-development-icon-png-clipart-website-development-web-dev-icon-11562967383vhxlfmnerz-removebg-preview (1)](https://user-images.githubusercontent.com/89779009/182963199-e40e9912-1d1b-4cd2-a483-6a2db36aa18d.png)
